@@ -1,2 +1,0 @@
-# jpoulin.github.io
-Portfolio
